@@ -1,4 +1,4 @@
-# off-trail-cold-brew
+# Off Trail Cold Brew
 
 # Privacy Policy
 
