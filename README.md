@@ -14,7 +14,7 @@ The security of your personal information is important to us, but remember that 
 
 This Privacy Policy is effective as of Dec. 14, 2024 and will remain in effect except with respect to any changes in its provisions in the future, which will be in effect immediately after being posted on this page.
 
-we reserve the right to update or change our Privacy Policy at any time and you should check this Privacy Policy periodically. If we make any material changes to this Privacy Policy, we will notify you through the email address you have provided us.
+We reserve the right to update or change our Privacy Policy at any time and you should check this Privacy Policy periodically. If we make any material changes to this Privacy Policy, we will notify you through the email address you have provided us.
 
 
 ## Contact Information
